@@ -1,5 +1,7 @@
 ---
 published: false
+layout: post
+Title: First Blog
 ---
 
 Lets start this off introducing all the things i'm working on at the time of starting to write. 
