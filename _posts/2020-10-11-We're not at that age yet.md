@@ -5,6 +5,8 @@ It isn't often that I feel out of place - I like to be as adaptive as possible a
 This was said to me by a close friend of mine not too long ago. I realize that me wanting to talk about real estate has been a thing since I was in highschool.
 My brothers and I have been obssessed with the idea of making passive income, and real estate was always at the top of the list. 
 
+It's important to say that currently im 22, and no where near the financial point to be able to invest in anything, especially not real estate. I am a big day dreamer and love thinking of all the different things I could do if I had the money, yet the current task at hand is creating that first source of real income. 
+
 Perhaps it's silly to think that everyone wants to hear about real estate/ how to make money online / how to not go into a random corporate job
 and I think that's fine, I just forget what is normal and what isn't. 
 
